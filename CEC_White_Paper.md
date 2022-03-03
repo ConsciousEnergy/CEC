@@ -4,6 +4,7 @@ Conscious Energies Chain vAlpha White Paper | 03/2021
 
 
 Conscious Energies Chain Decentralization and democratization of the energy grid
+
 Engineer Abundance
 Email: support@conscious.energy
 www.conscious.energy and www.consciousenergies.shop
